@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @4till2
+- 👋 Hi, I’m Yosef
 - 👀 I’m interested in the crossroads where humans interact with technology.
 - 📫 How to reach me: yosefserkez@gmail.com
 
